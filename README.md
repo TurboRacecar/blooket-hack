@@ -1,2 +1,2 @@
 # blooket-hack
-Credits to Minesraft
+Credits to @Minesraft2
